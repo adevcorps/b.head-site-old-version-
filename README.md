@@ -8,7 +8,7 @@ And if you help me for a video interview, I will provide you 20% in that month.
 
 For more details, please add me on your telegram or skype.
 
-tg: @adevcorps.
+tg: @adevcorps
 $k_ype: albert.devguy@gmail.com
 
 
